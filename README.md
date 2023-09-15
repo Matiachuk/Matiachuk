@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Matiachuk
+- 👀 I’m interested in code
+- 🌱 I’m currently learning code
+- 📫 How to reach me poppea. on Discord
